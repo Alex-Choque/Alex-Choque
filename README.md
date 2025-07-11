@@ -1,5 +1,4 @@
-## Hi there 👋
-
+## HOLA 👋 SOY ALEX CHOQUE AJATA ME APODAN EL ALEXO 😎Y ME GUSTAN MUCHO LAS PELICULAS 🎥| ESTUDIO ING.INFORMATICA 🔥 🔥 🔥 | HARE BRUJERIA CON MI CODIGO 🐳🐳🐳
 <!--
 **Alex-Choque/Alex-Choque** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
